@@ -1,1 +1,1 @@
-# www..ajaib.investasi
+# www.ajaib.investasi
